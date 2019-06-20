@@ -1,3 +1,3 @@
 ### README.md
 
-- MirrorBall.apkфдюоют╢о╢ы.
+- MirrorBall.apk К▀╓Л ╢К║°К⌠°.
